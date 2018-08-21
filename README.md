@@ -13,3 +13,5 @@ It's the belief that the mind is the most important to human beings and will con
 # *I know I had been there, two times at least before, and have been there again. So, it's obvious...*
 
 ***************************************
+
+# *Plan: Life and Growth of the Mind*
