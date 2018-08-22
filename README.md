@@ -10,7 +10,7 @@ It's the belief that the mind is the most important to human beings and will con
 
 * *"There is no limit to the amount of growth and development that mind can sustain. However, the mind can atrophy, like the muscles, if it is not used. Then, if we lack resources within ourselves, we cease to grow intellectually, morally and spiritually. And if we cease to grow, we begin to die."*
 
-###*I know I had been there, two times at least before, and have been there again. So, it's obvious...*###
+*### I know I had been there, two times at least before, and have been there again. So, it's obvious... ###*
 
 ***************************************
 
