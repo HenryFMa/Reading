@@ -14,4 +14,4 @@ It's the belief that the mind is the most important to human beings and will con
 
 ***************************************
 
-# *Plan: Life and Growth of the Mind*
+# *Plan: Reading for Life and Growth of the Mind*
