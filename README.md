@@ -17,3 +17,11 @@ It's the belief that the mind is the most important to human beings and will con
 # *Plan: Reading for Life and Growth of the Mind*
 
 * Reading: Learning by Discovery without Teacher.
+
+## *How*
+
+### Reading *How to Read A Book*, and taking all the actions to practise.
+
+### Developing a set of programs to systemize and extend the approach.
+
+* [FreeCodeCamp](https://github.com/freeCodeCamp/freeCodeCamp) is highly deserved to refer.
