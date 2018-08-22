@@ -15,3 +15,5 @@ It's the belief that the mind is the most important to human beings and will con
 ***************************************
 
 # *Plan: Reading for Life and Growth of the Mind*
+
+* Reading: Learning by Discovery without Teacher.
